@@ -3,7 +3,6 @@
 ##Contact information:
 Phone: +38 096 2894393
 E-mail: borenko.roman@icloud.com
-Telegram: @romanborenko
 LinkedIn
 ***
 ##Briefly About Myself:
