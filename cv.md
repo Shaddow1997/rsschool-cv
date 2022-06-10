@@ -30,5 +30,5 @@ Code Basics: HTML, CSS.
 English - Intermediate
 Ukrainian - Native
 Ukrainian - Upper Intermediate
-German - Basic
+German - Basic 
 
